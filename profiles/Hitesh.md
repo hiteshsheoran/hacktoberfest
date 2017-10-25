@@ -6,7 +6,7 @@ India
 
 ### Academics
 
-DTU
+DTU(DELHI TECHNOLOGICAL UNIVERSITY)
 
 ### Interests
 
